@@ -12,4 +12,12 @@ Robíte aj stretnutia online?
 
 Sú stretnutia len v slovenčine?
 
+Prijímate nových členov?
+
+Ako sa k vám  môžem pridať?
+
+Je členstvo platené?
+
+Aké sú moje práva a povinnosti člena TM?
+
 Čo mi členstvo v TM môže dať?
