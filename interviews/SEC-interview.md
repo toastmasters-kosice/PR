@@ -1,4 +1,4 @@
-## 1. Ako si sa dozvedel o Toastmasters?
+# 1. Ako si sa dozvedel o Toastmasters?
 Vlastne už ani presne neviem. V GlobalLogicu, kde som v tom čase pracoval, niekto spomínal, že bol na obed s istým Lukášom (pozn. Lukáš Bičuš, bývalý prezident klubu) a rozprávali sa o akomsi debatnom klube. Nevedel som síce, že je nejaký Toastmasters, ale už som mal niekde v podvedomí, že v Košiciach pôsobí nejaký rečnícky klub.
 
 Možno o pol roka neskôr sa mi táto informácia zišla. Uvedomil som si, že ako softvérový inžiniér síce dokážem dobre programovať, ale aby som dokázal veľké veci, potrebujem sa naučiť rečniť a networkovať. Hľadal som na Internete, či sa to neviem niekde v Košiciach naučiť a našiel som Toastmasters. Neviem, či som sa dostal najprv na web, alebo na ich Facebook stránku. Vtedy sa mi však tieto dve udalosti spojili.

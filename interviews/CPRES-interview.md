@@ -1,17 +1,12 @@
-1. Vlastne už ani presne neviem. V GlobalLogicu, kde som v tom čase pracoval, niekto spomínal, že bol na obed s istým Lukášom (pozn. Lukáš Bičuš, bývalý prezident klubu) a rozprávali sa o akomsi debatnom klube. Nevedel som síce, že je nejaký Toastmasters, ale už som mal niekde v podvedomí, že v Košiciach pôsobí nejaký rečnícky klub.
+# 1. Ako si sa dozvedel o Toastmasters?
+Môjmu členstvu v TM predchádzali dve veci. Ako študent VŠ som sa zúčastnil letnej stáže, počas ktorej som mal tú česť absolvovať rôzne vzdelávacie aktivity medzi nimi aj školenie prezentačných zručností a workshopy zamerane na osobnostné stranky, riešenie problémov a vedenie ľudí. Oslovilo ma to, a tak som začal hľadať aktivitu kde by som sa mohol venovať podobným činnostiam zameraným na sebarozvoj. 
+O tejto skúsenosti som raz len tak medzi rečou povedal kamarátke z Prahy. Tá mi okamžite odporučila Toastmasters. Ona v tom čase navštevovala klub v Prahe. Jej rozprávanie ma zaujalo a tak som začal hľadať. A našiel som Košický klub. 
 
-Možno o pol roka neskôr sa mi táto informácia zišla. Uvedomil som si, že ako softvérový inžiniér síce dokážem dobre programovať, ale aby som dokázal veľké veci, potrebujem sa naučiť rečniť a networkovať. Hľadal som na Internete, či sa to neviem niekde v Košiciach naučiť a našiel som Toastmasters. Neviem, či som sa dostal najprv na web, alebo na ich Facebook stránku. Vtedy sa mi však tieto dve udalosti spojili.
+# 2. Prečo si šiel do vedenia?
+Po roku pôsobenia v klube som videl priestor kde by sa dali veci robiť inak. Rozhodol som sa angažovať. Beriem to ako výzvu, kde v praxi uplatnim a otestujem moje skúsenosti - ako líderske tak aj tie pre prácu s ľuďmi. 
 
-Na stretnutie som však neprišiel hneď. Spolu s kamarátom sme stretnutie odkladali. Povedali sme si: "Tento týždeň nemáme čas, pôjdeme tam o dva..." No raz sme si povedali: "Tak už dosť, už to nebudeme odkladať." A šli sme.
+# 3. Vieš uviesť jeden konkrétny príklad, kde ti Toastmasters pomohol v reálnom živote?
+Jeden konkrétny príklad asi nie. Zmenila sa ale moja rétorika a postoj pri náročnom jednaní s ľuďmi. Dávam si väčší pozor na to ako svoje myšlienky hovorim, ako ich formulujem. V minulosti sa mi párkrát stalo. že som ostal nepochopený, resp daný človek to pochopil úplne inak ako som to myslela viedlo to k neprijemnym situáciám. Už sa mi to tak často nestáva. 
 
-Akurát v ten deň mali v klube špeciálne stretnutie, volilo sa nové vedenie klubu. Síce sme úplne nevedeli, čo sa deje, ale koncept rečnenia nás zaujal. Nemali s nami veľa práce. Po skončení stretnutia som len dal svoj email, spýtal sa, koľko stojí členské a ďalšie technické veci. Zvyšok je históriou...
-
-2. Zo začiatku som ani nevedel o takejto možnosti a ani mi neprišla nejako zaujímavá. Ja som sa chcel učiť networkovať a rečniť. Raz však za mnou prišiel vtedajší prezident Jožo Starúch, že vraj mám dobré nápady a že či by som to nechcel skúsiť vo vedení. Chvíľu som premýšľal a dohodli sme sa, že sa len tak nezáväzne prídem pozrieť na niektorú ich poradu. A potom som bol ešte asi na jednej ďalšej, kým som sa definitívne rozhodol. Odvtedy som vo vedení nepretržite až doteraz.
-
-3. Minulý rok som šiel prvýkrát prednášať na konferenciu Namakaný deň v Košiciach. Stáť po prvýkrát pred sto až stopäťdesiatimi ľuďmi nie je jednoduché, ale aj vďaka Toastmasters som to zvládol. Moja prednáška nebola bez chýb, ale nebyť Toastmasters, asi si ani netrúfnem tam vystúpiť.
-
-4. Zistil som o sebe, že ma baví rečniť a vystupovať pred ľuďmi. Šiel som do klubu naučiť sa konkrétne veci, ale napokon som zistil, že ma to rečnenie vlastne aj baví. Niekto chodí hrať po večeroch bowling, ja mám Toastmasters.
-
-Ďalšia vec, ktorú som o sebe zistil, je, že dokážem viesť ľudí. Zistil som to po roku vo vedení klubu. Ako itečkár som nevedel, či na to mám. V klube sme mali krízu členstva, neboli aktívni, odchádzali preč. A mne sa podarilo tento negatívny trend, spolu s ďalšími vedúcimi, odvrátiť. Keď som zvládol manažovať neziskovku v čase krízy, zvládnem manažovať aj ľudí vo svojom vlastnom tíme.
-
-Pridám ešte jeden postreh. Zistil som, že ľudia sú rozdielni a niektoré veci si vysvetlia inak, ako ich chápem ja. Ak sa otvorene nediskutuje, môžu vznikať v tíme konflikty. Komunikácia je základ.
+# 4. Môžeš uviesť jednu-dve veci, ktoré si o sebe vďaka Toastmasters zistil?
+V klube som spoznal kopec ľudí z rôzneho prostredia. Ľuďom je prirodzené že sa obklopujú a komunikujú s niekym kto im je blízky povahovo či záujmovo. Tu som sa naučil komunikovať a vychádzať i s ľuďmi s ktorými by som sa na prvý pohľad nemal o čom baviť.  Zistil som o sebe že som diplomatickejší ako som si o sebe myslel.
