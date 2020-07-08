@@ -1,7 +1,6 @@
-Propagujete klub a riadite proces privádzania hostí a ich transformácie na členov
-iniciovanie a udrziavanie kontaktu s hosťami, poskytovat im informácie
-pomoc udržiavať nepretržitý prílev nových ľudí do klubu
-pozorne monitorovať aj úrovne členstva a strategicky diskutovať so zvyškom výkonného výboru o tom, ako prekonať problémy spojené s členstvom, keď sa vyskytnú
+Viceprezident pre členstvo má veľmi dôležuitú úlohu. Propaguje klub a pomáha udržiavať nepretržitý prílev nových ľudí do klubu.
+Riadi proces privádzania hostí na stretnutia klubu a ich transformáciu na členov. Iniciuje a udržiava kontakt s hosťami, poskytuje im potrebné informácie o klube, jeho činnosti a ako sa stať členom. 
+Monitoruje aj úroveň členstva a strategicky diskutuje so zvyškom výkonného výboru o tom, ako prekonať problémy spojené s členstvom (keď sa vyskytnú).
 
 # 1. Ako si sa dozvedela o Toastmasters?
 Do klubu ma pozval Jozef Takáč (člen TMKE). Bolo to dva roky predtým, ako som sa stala členkou. Až neskôr som výrazne cítila potrebu pracovať na sebe. 

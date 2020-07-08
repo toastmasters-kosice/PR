@@ -1,6 +1,5 @@
-poskytujete užitočné a podporné vedenie pre všetky činnosti klubu
-za všetky činnosti klubu a vy ako prví prevezmete zodpovednosť
-Motivujete, riešite konflikty
+Prezident klubu nesie zodpovednosť za všetky činnosti klubu.
+Poskytujete užitočné a podporné vedenie, motivuje a rieši konflikty.
 
 # 1. Ako si sa dozvedel o Toastmasters?
 Môjmu členstvu v TM predchádzali dve veci. Ako študent VŠ som sa zúčastnil letnej stáže, počas ktorej som mal tú česť absolvovať rôzne vzdelávacie aktivity medzi nimi aj školenie prezentačných zručností a workshopy zamerane na osobnostné stranky, riešenie problémov a vedenie ľudí. Oslovilo ma to, a tak som začal hľadať aktivitu kde by som sa mohol venovať podobným činnostiam zameraným na sebarozvoj. 

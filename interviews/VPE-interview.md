@@ -1,5 +1,4 @@
-plánovať prejavy členov klubu, overiť dokončenie projektov
-a slúži ako zdroj pre otázky týkajúce sa štúdia Toastmasters Pathways, súťaží reči a klubový mentorský program
+Viceprezident pre vzdelávanie má na starosti plánovanie prejavov členov klubu, overovanie dokončenia projektov. Slúži ako zdroj pre otázky týkajúce sa štúdia vo vzdelávacom systéme Toastmasters Pathways, rečníckych súťaží a klubového mentorského programu.
 
 # 1. Ako si sa dozvedel o Toastmasters?
 
