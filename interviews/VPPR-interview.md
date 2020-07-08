@@ -1,10 +1,7 @@
-Ako viceprezident pre vzťahy s verejnosťou (VPPR) propagujete klub v miestnej komunite a informujete o tom médiá
-o existencii klubu a výhodách, ktoré poskytuje. Propagujete klub, aktualizujete webový obsah a zabezpečujete
-identita značky Toastmasters. Je vašou úlohou informovať médiá vždy, keď váš klub urobí niečo zaujímavé.
-Ocitnete sa v písaní správ, vytváraní a distribúcii letákov a udržiavaní prítomnosti klubu
-web a komunitu.
-
-Propagujete klub do miestnej komunity a informujete médiá o existencii a výhodách klubu. Propagujete klub, aktualizujete webový obsah a zabezpečujete identitu značky Toastmasters. Je vašou úlohou informovať médiá vždy, keď váš klub urobí niečo zaujímavé. Ako viceprezident pre styk s verejnosťou sa ocitnete v písaní správ, vytváraní a distribúcii letákov a udržiavaní prítomnosti klubu na rôznych kľúčových miestach na webe av komunite. Zostaňte v obraze všetkých nových udalostí prostredníctvom listu Leader, časopisu Toastmaster a oznámení uverejnených na webovej stránke Toastmasters a na sociálnych sieťach.
+propagujete klub v miestnej komunite a informujete o tom médiá - o existencii klubu a výhodách, ktoré poskytuje. 
+Propagujete klub, aktualizujete webový obsah a zabezpečujete identitu značky Toastmasters
+Je vašou úlohou informovať médiá vždy, keď váš klub urobí niečo zaujímavé.
+Ocitnete sa v písaní správ, vytváraní a distribúcii letákov a udržiavaní prítomnosti klubu na webe a v komunite.
 
 # 1. Ako si sa dozvedela o Toastmasters?
 Počúvala som podcast Šou Tima Ferrissa (The Tim Ferriss Show), kde bol rozhovor s autorkou knihy Ticho, Susan Cain. (How to Overcome Fear and Embrace Creativity)

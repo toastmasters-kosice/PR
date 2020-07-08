@@ -1,10 +1,6 @@
-Ako predseda klubu nastavíte tón svojmu klubu. Očakáva sa, že poskytnete užitočné a podporné vedenie
-za všetky činnosti klubu a vy ako prví prevezmete zodpovednosť za pokrok a blaho klubu.
-Motivujete, riešite konflikty a podľa potreby uľahčujete. Aj keď musíte občas vstúpiť a sťažiť
-rozhodnutie, len zriedka to urobíte bez toho, aby ste sa poradili s členmi klubu a inými funkcionármi klubu. Prejavíte úctu všetkým
-členovia, aj keď s nimi nesúhlasíte, a poskytujete vedenie všetkým.
-
-Očakáva sa, že ako osoba, ktorá nastavuje tón klubu, poskytujete užitočné a podporné vedenie pre všetky činnosti klubu. Motivujete, mier a uľahčujete podľa potreby. Aj keď musíte občas vstúpiť a urobiť ťažké rozhodnutie, zriedka tak urobte bez konzultácie s členmi klubu a inými funkcionármi klubu. Usilujte sa prejavovať úctu všetkým členom, aj keď s nimi nesúhlasíte, a poskytnite vedenie všetkým.
+poskytujete užitočné a podporné vedenie pre všetky činnosti klubu
+za všetky činnosti klubu a vy ako prví prevezmete zodpovednosť
+Motivujete, riešite konflikty
 
 # 1. Ako si sa dozvedel o Toastmasters?
 Môjmu členstvu v TM predchádzali dve veci. Ako študent VŠ som sa zúčastnil letnej stáže, počas ktorej som mal tú česť absolvovať rôzne vzdelávacie aktivity medzi nimi aj školenie prezentačných zručností a workshopy zamerane na osobnostné stranky, riešenie problémov a vedenie ľudí. Oslovilo ma to, a tak som začal hľadať aktivitu kde by som sa mohol venovať podobným činnostiam zameraným na sebarozvoj. 

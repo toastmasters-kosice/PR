@@ -1,10 +1,7 @@
-Ako člen viceprezidenta (VPM) propagujete klub a riadite proces prijímania hostí a
-premeniť ich na členov. Začatím kontaktu s hosťami, pomáhaním im cítiť sa vítanými a poskytovanými
-im s informáciami, ktoré sa potrebujú pripojiť, pomáhate udržiavať nepretržitý prílev nových ľudí do vášho klubu. vy
-pozorne monitorovať aj úrovne členstva a strategicky diskutovať so zvyškom výkonného výboru o tom, ako postupovať
-prekonať problémy s členstvom, keď sa vyskytnú.
-
-Propagujete klub a riadite proces privádzania hostí a ich transformácie na členov. Zahájením kontaktu s hosťami, zabezpečením, aby sa cítili vítaní, a poskytnutím informácií, ktoré potrebujú, aby ste sa pripojili, pomáhate udržiavať nepretržitý prílev nových ľudí do vášho klubu. Pozorne sledujete aj úrovne členstva a spolu so zvyškom výkonného výboru stratégujete, ako prekonať problémy spojené s členstvom, keď sa vyskytnú.
+Propagujete klub a riadite proces privádzania hostí a ich transformácie na členov
+iniciovanie a udrziavanie kontaktu s hosťami, poskytovat im informácie
+pomoc udržiavať nepretržitý prílev nových ľudí do klubu
+pozorne monitorovať aj úrovne členstva a strategicky diskutovať so zvyškom výkonného výboru o tom, ako prekonať problémy spojené s členstvom, keď sa vyskytnú
 
 # 1. Ako si sa dozvedela o Toastmasters?
 Do klubu ma pozval Jozef Takáč (člen TMKE). Bolo to dva roky predtým, ako som sa stala členkou. Až neskôr som výrazne cítila potrebu pracovať na sebe. 
