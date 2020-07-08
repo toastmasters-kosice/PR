@@ -1,3 +1,12 @@
+Ako tajomník udržujete všetky záznamy v klube, spravujete súbory v klube, spracovávate klubovú korešpondenciu a zaznamenávate zápisnice
+na každom zasadnutí klubu a výkonného výboru. Máte tiež na starosti aktualizáciu a distribúciu zoznamu
+aktuálne platené členstvo a udržiavanie aktuálneho zoznamu funkcionárov klubu pre tím Toastmasters International. Aj keď niektoré
+kluby kombinujú úlohu sekretára s pokladníkom, najlepšie je mať špecializovaného sekretára, ktorý môže pomôcť znížiť
+pracovné zaťaženie pokladníka a príležitostne tiež pomoc viceprezidentovi pre vzdelávanie. Tiež si objednáte
+potreby pre klub.
+
+Ako tajomník udržujete všetky záznamy v klube, spravujete záznamy v klube, spracovávate korešpondenciu v klube a robíte zápisnice na každom stretnutí klubu a výkonného výboru. Taktiež máte na starosti aktualizáciu a distribúciu rozpisu aktuálneho plateného členstva a udržiavanie aktuálneho zoznamu vedúcich klubov na svetovej centrále. Aj keď niektoré kluby kombinujú úlohu sekretára s pokladníkom, je najlepšie mať špecializovaného sekretára, ktorý môže pomôcť znížiť pracovné zaťaženie pokladníka a príležitostne tiež pomôcť vzdelávaniu viceprezidenta.
+
 # 1. Ako si sa dozvedel o Toastmasters?
 Vlastne už ani presne neviem. V GlobalLogicu, kde som v tom čase pracoval, niekto spomínal, že bol na obed s istým Lukášom (pozn. Lukáš Bičuš, bývalý prezident klubu) a rozprávali sa o akomsi debatnom klube. Nevedel som síce, že je nejaký Toastmasters, ale už som mal niekde v podvedomí, že v Košiciach pôsobí nejaký rečnícky klub.
 
