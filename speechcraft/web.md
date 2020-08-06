@@ -1,10 +1,9 @@
 Ústna komunikácia je súčasťou každodenného života. Zdravíme ľudí, vyjadrujeme svoje názory, vymieňame si informácie, pýtame sa otázky. 
-
 To, ako formulujeme svoje myšlienky, určuje dojem, ktorý robíme na ostatných a v konečnom dôsledku aj to, ako sme v živote úspešní.
 
-Aj napriek tomu nám môže rozprávanie pred ľuďmi zneistiť alebo naháňať starch. Môžme mať obavy, že urobíme alebo povieme niečo hlúpe, alebo že budeme naše publikum nudiť. To všetko sú normálne obavy a s určitou dávkou motivácie a práce na sebe je možné ich prekonať.
+Aj napriek tomu nám môže rozprávanie pred ľuďmi zneistiť alebo naháňať nám strach. Môžme mať obavy, že urobíme alebo povieme niečo hlúpe, alebo že budeme naše publikum nudiť. To všetko sú normálne obavy a s určitou dávkou motivácie a práce na sebe je možné ich prekonať.
 
-Vďaka kurzu Speechcraft sa môžete naučiť prezentovať svoje myšlienky logicky a presvedčivo. Popri tom si vybudovať sebavedomie, ktoré pomôže v zvládaní každej situácie, vyžadujúcej rozprávanie na verejnosti, bez problémov.
+Vďaka kurzu Speechcraft sa môžete naučiť prezentovať svoje myšlienky logicky a presvedčivo. Popri tom si vybudovať sebavedomie, ktoré pomôže v zvládaní každej situácie, vyžadujúcej rozprávanie na verejnosti.
 
 ČO SA MôŽEM NA KURZE NAUČIŤ?
 -	Zakladne principy verejneho vystupovania/recnenia - ako pripraviť prejav
