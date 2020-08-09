@@ -6,7 +6,7 @@ AKO ČASTO? Každé 2 týždne, dokopy 6 stretnutí, posledné bude 7.12.2020
 KDE? Centrálna požičovňa, Verejná knižnica Jána Bocatia, Košice
 
 Počet účastníkov: 5
-Účastnícky poplatok: 20e (vyberame na 1.stretnutí)
+Účastnícky poplatok: 20€ (vyberáme na 1. stretnutí)
 
 Vystúpte zo svojej komfortnej zóny a prihláste sa TU: <link od kniznice>
 
