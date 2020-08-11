@@ -1,6 +1,7 @@
 # Čo sú kluby Toastmasters?
 Spoločenský klub pre tréning komunikačných, rečníckych a vodcovských zručností. Cieľom je učiť sa praxou, pomocou spätnej väzby a vo vlastnom tempe s priateľskou podporou ostatných členov klubu.
 Misia klubu: "Poskytujeme podporné a pozitívne prostredie, v ktorom členom umožňujeme rozvinúť v sebe rečnícke a líderské zručnosti, čím získajú väčšie sebavedomie a osobnostne rastú."
+Sme členmi medzinárodnej organizácie Toastmasters International.
 
 # Pre koho sú stretnutia určené?
 Pre každého, kto sa chce naučiť:
