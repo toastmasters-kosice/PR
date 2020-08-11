@@ -1,0 +1,2 @@
+The best way to achieve a high level of ease before a speech is to practice. Using techniques that you would for other speeches, such as recording your presentation to review, practicing in front of a friend or colleague, or working with your mentor, will help you reach a level of comfort that mimics impromptu delivery.
++ pred zrkadlom
