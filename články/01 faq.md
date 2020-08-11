@@ -74,4 +74,4 @@ Povinnosti
 Ak vás zaujímajú osobné skúsenosti našich členov s klubom Toastmasters, prečítajte si rozhovory s nimi. V nich hovoria (okrem iného) aj o tom, v čom je ich život iný vďaka Toastmasters.
 
 --------
-(VC) odkaz na otázku s odpoveďou - Tu môžete pracovať na projektoch, sledovať svoj pokrok, spojiť sa s členmi svojho klubu a prezerať si odznaky a certifikáty, ktoré získate počas cesty. Základný tábor tiež obsahuje zdroje, ktoré vám pomôžu, vrátane návodov, videí, kvízov, interaktívnych aktivít a ďalších.
+(VC) odkaz na otázku s odpoveďou - Vzdelávacia cesta obsahuje zdroje, ktoré ti pomôžu pri plnení projektov, vrátane návodov, videí, kvízov, interaktívnych aktivít a ďalších. Môžeš tu pracovať na projektoch a sledovať svoj pokrok.
