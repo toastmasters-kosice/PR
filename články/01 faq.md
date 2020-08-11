@@ -18,25 +18,24 @@ Orientačný program:
 - Záverečné hodnotenia
 - Uzavretie stretnutia
 - Afterparty 
-
-Prvá časť stretnutia je venovaná pripraveným prejavom. Každý člen má na svojej vzdelávacej ceste
+Prvá časť stretnutia je venovaná pripraveným prejavom. Každý člen má na svojej vzdelávacej ceste (VC)
 Po nej nasledujú hodnotitelia, ktorí dávajú rečníkom spätnú väzbu. Je to veľmi cenný nástroj, vďaka ktorému sa môžme zlepšovať a napredovať.
 Ďalšia časť je venovaná improvizáciám, do ktorých si vítaný zapojiť sa. 
 Na záver so svojimi zhrnutiami vystupujú kvantitatívni hodnotitelia, ktorých úlohou je zhrnúť počínanie si s časom a zhodnotenie gramatickej stránky prejavu každého účastníka.
 
 # Kde sa stretnutia odohrávajú?
 Stretávame sa v Tabačke, v Midboxe. 
--> link na Midboxe
+-> link na Midbox
 -> popis ako sa tam dostať
 
 # Ako často sa stretávate?
-Stretnutia prebiehajú každý druhý pondelok od 18:30 približne do 20:00. Po stretnutí si zvykneme sadnúť na menšiu after party v Tabačke, ste vítaní pridať sa :)
+Stretnutia prebiehajú každý druhý pondelok od 18:30 približne do 20:00. Po ukončení oficiálnej časti stretnutia si zvykneme sadnúť na menšiu after party v Tabačke, si vítaný pridať sa :)
 
 # Sú stretnutia zadarmo?
 Áno, stretnutia pre hostí sú bezplatné.
 
 # Robíte aj stretnutia online?
-Náš klub sa stretáva predovšetkým osobne, každý druhý pondelok o 18:30 v Tabačke. Počas obdobia korony sme sa však stretávali len online. V budúcnosti by sme chceli udržať naše stretávanie sa aj v online priestore, pretože nám to pomáha získať nové zručnosti. Ale online stretnutia budú nepravidelné. Pre aktuálne informácie o pripravovaných udalostiach sledujte našu FB stránku Toastmasters Košice.
+Náš klub sa stretáva predovšetkým osobne, každý druhý pondelok o 18:30 v Tabačke. Počas obdobia korony sme sa však stretávali len online. V budúcnosti by sme chceli udržať naše stretávanie sa aj v online priestore, pretože nám to pomáha získať nové zručnosti. No online stretnutia budú nepravidelné. Pre aktuálne informácie o pripravovaných udalostiach sledujte našu FB stránku Toastmasters Košice.
 
 # Sú stretnutia len v slovenčine?
 Áno.
@@ -50,21 +49,29 @@ Náš klub sa stretáva predovšetkým osobne, každý druhý pondelok o 18:30 v
 
 # Je členstvo platené?
 Áno. Členstvo v klube stojí 10 Eur/mesiac. Platí sa vopred na jeden polrok - v marci na apríl až september a v septembri na október až marec.
-V cene členského je zahrnutá prvá vzdelávacia cesta a časopis Toastmasters International.
+V cene členského je zahrnutá prvá vzdelávacia cesta (VC) a časopis Toastmasters International.
 
 # Aké sú moje práva a povinnosti člena TM?
 Práva
 - chodiť na stretnutia
-- prístup k vzdelávaciemu systému Toastmasters Pathways
+- prístup k vzdelávaciemu systému Toastmasters Pathways (VC)
 - možnosť prednášať pripravené prejavy na stretnutiach a získať spätnú väzbu
 - možnosť vziať si rôzne roly na stretnutí, ktoré pomáhajú v zlepšovaní rečníckych a organizačných zručností - moderovanie, sledovanie času, počítanie slovných barličiek (napr. vlastne, hmmm a pod.)
 - mentor
 - Toastmasters časopis
 - rečnícke súťaže
-- možnosť ísť do vedenia klubu
+- možnosť ísť do vedenia klubu a získať tak líderské zručnosti
 Povinnosti
 - členský poplatok
 
 # Čo mi členstvo v TM môže dať?
+- naučiť pútavo rozprávať, 
+- zbaviť sa nervozity pri verejnom vystupovaní,
+- vedieť efektívne manažovať
+- učiť sa praxou a pomocou spätnej väzby
+- možnosť postupovať vlastným tempom
 
 Ak vás zaujímajú osobné skúsenosti našich členov s klubom Toastmasters, prečítajte si rozhovory s nimi. V nich hovoria (okrem iného) aj o tom, v čom je ich život iný vďaka Toastmasters.
+
+--------
+(VC) odkaz na otázku s odpoveďou - Tu môžete pracovať na projektoch, sledovať svoj pokrok, spojiť sa s členmi svojho klubu a prezerať si odznaky a certifikáty, ktoré získate počas cesty. Základný tábor tiež obsahuje zdroje, ktoré vám pomôžu, vrátane návodov, videí, kvízov, interaktívnych aktivít a ďalších.
