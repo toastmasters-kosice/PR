@@ -4,8 +4,8 @@ Misia nášho klubu: "Poskytujeme podporné a pozitívne prostredie, v ktorom č
 
 # Kde sa stretávate? 
 Stretávame sa v Tabačke, v Midboxe. 
--> link na Midbox
--> popis ako sa tam dostať
+https://www.tabacka.sk/priestory/mid-box/
+MidBox sa nachádza na 1. poschodí. Použite schody pri Veľkej sále (schodisko naľavo od toaliet). Keď vyjdete po schodoch, zamierte vľavo. Na to, aby ste sa dostali do Mid Boxu, musíte prejsť cez Black Box.
 
 # Ako často sa stretávate? 
 Stretnutia prebiehajú každé dva týždne. Časovo sú vymedzené na dve hodiny, od 18:30 - 20:30. Spravidla končíme skôr, záleží to od počtu rečníkov. 
