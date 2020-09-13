@@ -1,5 +1,5 @@
-udržujete všetky záznamy v klube, spravujete súbory v klube, spracovávate klubovú korešpondenciu a zaznamenávate zápisnice na každom zasadnutí klubu a výkonného výboru. 
-máte na starosti aktualizáciu a distribúciu rozpisu aktuálneho plateného členstva a udržiavanie aktuálneho zoznamu vedúcich klubov na svetovej centrále
+Tajomník udržuje všetky záznamy v klube a zaznamenáva zápisnice na každom zasadnutí klubu a jeho vedenia. 
+Má na starosti aktualizáciu a distribúciu rozpisu aktuálneho plateného členstva a udržiavanie aktuálneho zoznamu vedúcich klubov na svetovej centrále.
 
 # 1. Ako si sa dozvedel o Toastmasters?
 Vlastne už ani presne neviem. V GlobalLogicu, kde som v tom čase pracoval, niekto spomínal, že bol na obed s istým Lukášom (pozn. Lukáš Bičuš, bývalý prezident klubu) a rozprávali sa o akomsi debatnom klube. Nevedel som síce, že je nejaký Toastmasters, ale už som mal niekde v podvedomí, že v Košiciach pôsobí nejaký rečnícky klub.
