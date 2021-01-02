@@ -10,9 +10,6 @@ Zaujímavou časťou večera sú improvizácie. Úlohou je rozprávať približn
 
 Toto stretnutie bude prebiehať online, prostredníctvom aplikácie ZOOM.
 📌 ZOOM link: https://zoom.us/s/95268796627
-Ak sa chceš zúčastniť, prosím napíš nám správu. Pošleme Ti prístupové heslo :)
-
-Stretnutie je zaheslované z dôvodu ochrany pred botmi.
 
 
-Program začne od 18:30. Odporúčame však prísť trocha skôr, aby ste mali dosť času nastaviť si kameru a mikrofón. Prípadne môžete využiť priestor na networking alebo otázky, ktoré veľmi radi zodpovieme.
+Program začne od 18:15. Odporúčame však prísť trocha skôr, aby ste mali dosť času nastaviť si kameru a mikrofón. Prípadne môžete využiť priestor na networking alebo otázky, ktoré veľmi radi zodpovieme.
